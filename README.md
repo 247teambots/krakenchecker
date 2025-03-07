@@ -14,5 +14,9 @@ All versions are free
 
 Ipv6 proxies 
 
+# How to get accs?
+The best solution to get accounts can be [PhishingMarket](https://telegra.ph/Phishing-Markets---Luchshaya-partnerka-dlya-razmeshcheniya-fishingovyh-marketplejsov-01-31) , which will help you in your business 
+
+
 # ScreenShot
 ![image](https://github.com/user-attachments/assets/3dcd9b59-8805-471b-a112-90bb6f6c77ff)
